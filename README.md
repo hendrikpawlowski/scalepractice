@@ -1,0 +1,1 @@
+Practicing Scales is good
